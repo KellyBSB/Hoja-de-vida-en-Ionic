@@ -8,4 +8,5 @@
 ### Cursos
 ![4](https://user-images.githubusercontent.com/38759833/89939937-5e53e300-dbde-11ea-8178-cc5d6f0294e4.PNG)
 ### Otros
+![5](https://user-images.githubusercontent.com/38759833/89939980-70358600-dbde-11ea-914f-293902697ebc.PNG)
 ### Contactos
