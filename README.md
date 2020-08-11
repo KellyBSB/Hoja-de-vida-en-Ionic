@@ -6,5 +6,6 @@
 ### Estudios
 ![3](https://user-images.githubusercontent.com/38759833/89939876-454b3200-dbde-11ea-9101-1d9f1eab577c.PNG)
 ### Cursos
+![4](https://user-images.githubusercontent.com/38759833/89939937-5e53e300-dbde-11ea-8178-cc5d6f0294e4.PNG)
 ### Otros
 ### Contactos
